@@ -1,7 +1,7 @@
 Olá 👋😄
 
 
-- 🔭 Atualmente estou em transição de carreira.
+- 🔭 Atualmente em transição de carreira.
 -  💻 E-mail: karinefsdomeni@gmail.com
 
 <div> 
