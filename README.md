@@ -1,7 +1,7 @@
 Olá 👋😄
 
 
-- 🚀 Atualmente em transição de carreira.
+- 🚀 Estagiária de TI na Vivo.
 -  💻 E-mail: karinefsdomeni@gmail.com
 
 <div> 
